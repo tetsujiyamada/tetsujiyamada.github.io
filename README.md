@@ -1,1 +1,0 @@
-# tetsujiyamada.github.io
